@@ -11,6 +11,6 @@ READ ME! ᶻ 𝗓 𐰁
 - c+h and 'weird' jokes are allowed if i know you!!
 - it takes time for me to talk if we've never interacted b4 or for a long time
 - semiverbal (unless friend)
-- pls just dont be weird and i'll try talking
-- dni 'that' part of pjsk fandom!! thanks!!
+- dont force me to talk back (⁠･⁠o⁠･⁠;⁠)
+- dni 'that' part of pjsk fandom!! thanks!! (⁠≧⁠▽⁠≦⁠)
 - i get inspo from other people, if you're uncomfy i'll delete it :3
